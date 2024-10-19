@@ -1,0 +1,1 @@
+# for-sponsors-only-hidden-repos-list
